@@ -1,6 +1,6 @@
 # Rushidev Ukalkar
 
-Some questions stay with me until i understand them i enjoy exploring ideas figuring out how things work & following curiosity wherever it leads
+Some questions stay with me until i understand them.i enjoy exploring ideas figuring out how things work & following curiosity wherever it leads
 
 I dont like restricting my interests to a single subject. I find myself drawn to unfamiliar ideas, independent exploration, experimentation, and the process of turning thoughts into something tangible
 
